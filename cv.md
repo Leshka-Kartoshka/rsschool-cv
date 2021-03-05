@@ -27,3 +27,9 @@ I'm intrested in education in rolling stones school and distribution to EPAM aft
 ## English skills
 My english is good enough to speak with native speakers, I can watch english youtube videos and read documentation. My approximate level is A2 - A2+.
 
+## My contacts
+- [Me in FaceBook](https://www.facebook.com/profile.php?id=100009542711202)
+- [Me in LinkedIn](https://www.linkedin.com/in/aleksey-likhodievski-47634b1b9/)
+- [My own web page](https://likhodievski.000webhostapp.com/)
+
+***I hope I will studying in rs school.***
