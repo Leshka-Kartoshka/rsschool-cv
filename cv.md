@@ -17,3 +17,13 @@ In the september 2020 I was enrolled in BSUIR Faculty of Infocommunications on t
 
 ## Purposes
 I'm intrested in education in rolling stones school and distribution to EPAM after rs school.
+
+## Some description
+- I love programming and work with people.
+- I'm smart.
+- I'm fast educating.
+- I love trying something new.
+
+## English skills
+My english is good enough to speak with native speakers, I can watch english youtube videos and read documentation. My approximate level is A2 - A2+.
+
